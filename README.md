@@ -1,0 +1,2 @@
+# vazimba
+Vazimba means Malagasy
